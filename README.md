@@ -1,0 +1,1 @@
+Energy is cool (no pun intended)
